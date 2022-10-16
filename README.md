@@ -1,3 +1,9 @@
-# Game-Assets
-Here I will share assets I created and intent to share with the public
 
+<br>
+
+# Game Assets
+
+*Some game I created, some may be* <br>
+*original creations, others recreations.*
+
+<br>
